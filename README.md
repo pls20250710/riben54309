@@ -18,4 +18,4 @@
 
 综合来看，成人资源站要在内容质量、技术优化和用户体验三方面持续发力，才能在激烈的市场中保持竞争优势，实现长期稳定的发展。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben54309 ）</span>
